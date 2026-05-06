@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Njuguna-Peter-njoroge
-- 👀 I’m interested in ...learning
-- 🌱 I’m currently learning ...chuka university
+- 👀 I’m interested in ...collaboration with people in tech
+- 🌱 I’m currently learning at chuka university
 - 💞️ I’m looking to collaborate on ... building accessible websites And applications
 - 📫 How to reach me ...on my email njugunahpeternjoroge@gmail.com
 - 😄 Pronouns: ...😏😏
